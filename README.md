@@ -1,1 +1,1 @@
-# minim_0
+https://mdbulbul.github.io/minim_0/
